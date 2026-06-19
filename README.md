@@ -1,1 +1,1 @@
-# Chenrui-HappyBirthday.-github.io-
+# Chenrui HappyBirthday.github.io
